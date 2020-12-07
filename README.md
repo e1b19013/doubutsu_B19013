@@ -1,1 +1,1 @@
-doubutsu_B19013
+doubutsu
